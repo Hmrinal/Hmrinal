@@ -6,7 +6,7 @@
 
 # Hola There !!
 
-I'm a Data Enthusiast and Working Student at STADA. 
+Data Enthusiast at STADA’s Central Data Management—turning data chaos into clarity!
 
 # Socials
 
